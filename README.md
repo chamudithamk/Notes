@@ -1,1 +1,1 @@
-# Data-Driven-Dynamics-and-Control
+# Notes after Bachelor's
